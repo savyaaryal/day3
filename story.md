@@ -1,0 +1,2 @@
+# Story
+There was a two girls sitting in the last desk of the class in a boring class, lost in their own world.
